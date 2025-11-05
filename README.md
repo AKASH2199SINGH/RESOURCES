@@ -1,2 +1,2 @@
 # RESOURCES
-here i will provide you lost of resourses for your learning
+here i will provide you lots of resourses for your learning
